@@ -1,4 +1,4 @@
-## NUTGOD IS A RAT DO NOT DOWNLOAD
+# ⚠️ NUTGOD IS A RAT DO NOT DOWNLOAD ⚠️
 
 ![nut-removebg-preview](https://user-images.githubusercontent.com/90464553/138902788-569ee577-496b-4a7a-9a96-3e2b94eaf546.png)
 
